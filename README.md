@@ -1,1 +1,1 @@
-# PrepInsta-Week-2-Projects
+# PrepInsta-Internship-Week-2-Projects
